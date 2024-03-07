@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am a management information systems student.<br> I am interested in Data and Cyber ​​security.
+I am a management information systems student.<br> I am interested in Data and Business Analyst.
 
 
 ## 🌐 Socials:
